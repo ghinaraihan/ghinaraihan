@@ -1,16 +1,17 @@
 ### Hi there 👋
 
-<!--
-**ghinaraihan/ghinaraihan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+sweet and spicy korean sauce
 
-Here are some ideas to get you started:
+2 tbsp of sugar
+3 tbsp of soy sauce
+1 tbsp of sesame seed oil
+1 tbsp of minced garlic
+2 tbsp of hot pepper taste
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+crispy cutlet recipe
+
+bread crumbs
+flour
+eggs (whisk)
+
+coat the chicken/fish with flour-egg-bread crumbs
